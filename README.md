@@ -9,7 +9,7 @@ Add your name to the list below:
 4.
 5.
 6.
-7.
+7. Daniel de la Cruz
 8.
 9.
 10.
